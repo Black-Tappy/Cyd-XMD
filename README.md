@@ -1,4 +1,5 @@
-https://files.catbox.moe/fj5qfb.jpg
+![325e9c972ec9b7f77bcb0b72be26195f (3)](https://github.com/user-attachments/assets/88dcd61d-7cdf-4aaa-a5ed-1bec7d6b0837)
+
 
 
 <a href="https://i.imgur.com/5zda1uw.jpeg"><img src="![cb5dce0c62b8ee5800fcc9a752825aee (1)](https://github.com/user-attachments/assets/9b608c05-46f8-4987-9802-b1635f8369aa)
@@ -92,7 +93,8 @@ https://files.catbox.moe/fj5qfb.jpg
 
    
 
-https://files.catbox.moe/fj5qfb.jpg
+![325e9c972ec9b7f77bcb0b72be26195f (3)](https://github.com/user-attachments/assets/1d5c462e-2c5d-4b8a-ab8a-d77183bcbd53)
+
     <h1 align="center">𝐂𝐲𝐝-𝐗𝐌𝐃-XMD</h1>
   </a>                    
     
