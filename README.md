@@ -13,7 +13,7 @@
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-## HERE IS THE PROGRESS FOR BUMBLE-BEE 
+## HERE IS THE PROGRESS FOR 𝐂𝐲𝐝-𝐗𝐌𝐃 
 
 
 <p align="center">
@@ -37,7 +37,7 @@
 
 
 
-## HOW TO GET BUMBLE-BEE 
+## HOW TO GET 𝐂𝐲𝐝-𝐗𝐌𝐃 
 
   
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗙𝗢𝗥𝗞+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+𝗥𝗘𝗣𝗢)](https://git.io/typing-svg)
@@ -56,7 +56,7 @@
  
 
 
-  <a href="https://mustaffa-sessions-generator.onrender.com/pair"><img title="GET-SESSION ID HERE" src="https://img.shields.io/badge/GET-SESSION ID HERE-h?color=green&style=for-the-badge&logo=render" width="230" height="38.45"/></a></p>
+  <a href="https://cyd-pair-codes.onrender.com/pair"><img title="GET-SESSION ID HERE" src="https://img.shields.io/badge/GET-SESSION ID HERE-h?color=green&style=for-the-badge&logo=render" width="230" height="38.45"/></a></p>
 
   
   <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
