@@ -96,6 +96,6 @@
 ![325e9c972ec9b7f77bcb0b72be26195f (3)](https://github.com/user-attachments/assets/1d5c462e-2c5d-4b8a-ab8a-d77183bcbd53)
 
     
-<h1 align="center">𝐂𝐲𝐝-𝐗𝐌𝐃-XMD</h1>
+<h1 align="center">𝐂𝐲𝐝-𝐗𝐌𝐃</h1>
   </a>                    
     
